@@ -1,1 +1,1 @@
-# Bio-neo
+[obespechennost_vrachami_na_10000_chelovek_chelovek_permstat_7_dekabrya_2013_0.csv](https://github.com/Victor-Shurov/Bio-neo/files/11311947/obespechennost_vrachami_na_10000_chelovek_chelovek_permstat_7_dekabrya_2013_0.csv)
